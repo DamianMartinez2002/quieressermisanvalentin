@@ -12,8 +12,8 @@ Estoy interesada en colaborar contigo en proyectos emocionantes y desafiantes. �
 ## Contacto 📫
 Puedes encontrarme en mis redes sociales:
 
-- [Facebook](https://www.facebook.com/mabelquispeolivera/)
-- [Instagram](https://www.instagram.com/mabelolivera10/)
-- [LinkedIn](https://www.linkedin.com/in/mabelquispeolivera/))
+- [Facebook]()
+- [Instagram]()
+- [LinkedIn](www.linkedin.com/in/aguirre-martinez-damian-28973a2bb))
 
 ¡Espero poder conectarme contigo pronto y colaborar en futuros proyectos! 😊
