@@ -14,6 +14,6 @@ Puedes encontrarme en mis redes sociales:
 
 - [Facebook]()
 - [Instagram]()
-- [LinkedIn](www.linkedin.com/in/aguirre-martinez-damian-28973a2bb))
+- [LinkedIn](www.linkedin.com/in/aguirre-martinez-damian-28973a2bb)
 
 ¡Espero poder conectarme contigo pronto y colaborar en futuros proyectos! 😊
